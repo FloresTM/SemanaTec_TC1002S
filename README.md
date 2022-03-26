@@ -1,0 +1,1 @@
+# SemanaTec_TC1002S
